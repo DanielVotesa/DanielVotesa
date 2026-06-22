@@ -5,4 +5,4 @@ mostly i just look at wallets that would rather stay unlooked-at.
 
 `receipts > opinions` · `"probably nothing" is usually something`
 
-× [@votesa](https://x.com/votesa) — where the actual yapping happens
+× [@votesa](https://x.com/votesa) – where the actual yapping happens
